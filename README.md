@@ -1,2 +1,2 @@
 # carta-de-amor
-https://reioni.github.io/carta-de-amor/
+Lo mejor para ti <3
